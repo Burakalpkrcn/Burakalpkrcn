@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Burakalpkrcn
+- 👀 I’m interested in ...
+- to learn
